@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A SERMON Preached before the Antient Company of Black-ſmiths in S. Marie Magdalens Church in London 
+
 1. TO THE ANTIENT company of Blackſmiths in London, & eſpecially to the Maſter, Wardens and Aſſiſtants therof, all grace & happines in this and the life to come.
 
 #####Body#####
